@@ -136,3 +136,6 @@
 เธอไม่มีความกลัวอีกต่อไป
 
 เธอเหมือนได้เกิดใหม่ในวันเกิดนี้ของเธอแล้ว
+
+
+![F9EDs14aoAA_4S3](https://github.com/gotuya/Cigarettes-coffee-and-house-keys/assets/24870473/468341de-0463-45f4-a8b7-2d367d979196)
